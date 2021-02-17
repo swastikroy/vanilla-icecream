@@ -1,0 +1,1 @@
+Ice cream is flavored by artificial or natural vanilla flavoring. Artificial flavorings contain 100% vanillin, the main ingredient that contributes to natural vanilla extract's flavor. Natural vanilla extract also contains nearly 200 more compounds in addition to vanillin.
